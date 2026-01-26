@@ -1,4 +1,4 @@
-# 2Pac – Hit 'Em Up (Single Version)
+# 2Pac – Hit 'Em Up (Single Version) (feat. The Outlawz)
 
 > **歌詞登録ステータス：同期歌詞あり**
 
